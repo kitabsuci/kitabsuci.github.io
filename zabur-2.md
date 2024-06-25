@@ -13,7 +13,8 @@ Raja yang Dilantik Allah
 5. Pada waktu itu Ia akan berfirman kepada mereka dalam murka-Nya dan menggentarkan mereka dalam nyala amarah-Nya,
 
 6. “Aku sudah melantik raja-Ku di Sion, gunung-Ku yang suci itu.”
-
+ ----
+ 
 10. Oleh sebab itu, hai raja-raja, bertindaklah bijaksana! Terimalah didikan, hai hakim-hakim dunia!
 
 11. Beribadahlah kepada ALLAH dalam ketakwaan, dan dalam kegentaran.
