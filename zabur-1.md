@@ -11,3 +11,7 @@ Jalan Orang Benar dan Orang Fasik
 5. Sebab itu, orang fasik tidak akan tahan dalam pengadilan, demikian pula orang berdosa dalam kumpulan orang benar.
 
 6. ALLAH mengenal jalan orang benar, tetapi jalan orang fasik akan binasa.
+
+kesimpulan di kitab zabur  :
+jangan menuruti keinginan orang fasik,tetapi seringlah merenung tentang Allah setiap saat mereka yang merenungkan tentang Allah merek tidak dapat tergoyahkan, tetapi orang fasik tidak
+percaya adanya akhirat dan pengadilan di padang masyar serta orang fasik akan selalu binasa
